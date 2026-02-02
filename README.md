@@ -7,4 +7,4 @@ you need a license, which can be purchased on our discord server.
 * Youtube: https://www.youtube.com/@GFX_Channel
 *  Twitch: https://www.twitch.tv/gfxchannel
 
-![image](https://github.com/user-attachments/assets/956473f9-76a6-4cf7-89cb-86d11d9d306a)
+![image](https://github.com/user-attachments/assets/a8d053ba-9232-4f6c-a360-64c2aff71013)
